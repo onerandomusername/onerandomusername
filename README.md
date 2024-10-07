@@ -1,5 +1,4 @@
 - 💜 https://en.pronouns.page/@arielle
-- 🌐 https://arielle.codes (not complete)
 - 💰 https://github.com/sponsors/onerandomusername
 
 
